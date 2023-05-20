@@ -1,1 +1,2 @@
-# Activity-6
+# Activity-7
+Joriza Oliva BSIT 3-B
